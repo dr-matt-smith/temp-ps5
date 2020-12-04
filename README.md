@@ -1,6 +1,7 @@
 # temp-ps5
 
-
+Smyths
+https://www.smythstoys.com/ie/en-ie/video-games-and-tablets/playstation-5/c/SM060461
 
 Harvey Norman
 https://www.harveynorman.ie/gaming/playstation-5/
